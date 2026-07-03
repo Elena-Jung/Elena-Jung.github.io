@@ -1,5 +1,5 @@
 # **김경민**
-## **Kyungmin Kim**
+# Kyungmin Kim
 
 ### **(+82) 10-3023-7729**
 ### **kimkm030@gmail.com**
