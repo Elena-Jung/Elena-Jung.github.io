@@ -1,14 +1,10 @@
 # **김경민**
-
 ## **Kyungmin Kim**
 
-## **(+82) 10-3023-7729**
-
-## **kimkm030@gmail.com**
-
-## **GitHub : [https://github.com/Elena-Jung](https://github.com/Elena-Jung)**
-
-## **Blog : [https://note.noloo.org](https://note.noloo.org)**
+### **(+82) 10-3023-7729**
+### **kimkm030@gmail.com**
+### **GitHub : [https://github.com/Elena-Jung](https://github.com/Elena-Jung)**
+### **Blog : [https://note.noloo.org](https://note.noloo.org)**
 
 ## 
 
